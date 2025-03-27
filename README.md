@@ -1,2 +1,0 @@
-# Anykernel_Apollo
-Apollooooooooooooooooooooooooooo
